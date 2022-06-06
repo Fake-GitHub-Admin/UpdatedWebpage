@@ -4,3 +4,5 @@ Webpage Preview Updated: https://fake-github-admin.github.io/UpdatedWebpage/Upda
 
 
 More information about me will come in 2 weeks (busy schedule this week), just getting my personal favorable photos and hobbies together as well as reccomendations, hopefully some mini update this week. 
+
+6/6 - Upcoming changes coming this 6/12.
